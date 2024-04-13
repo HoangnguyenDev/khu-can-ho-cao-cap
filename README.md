@@ -3,7 +3,10 @@ Trong thế giới ngày càng phát triển và đô thị hóa, khu căn hộ 
 _Các khu phức hợp căn hộ cao cấp tại Việt Nam_
 ----------------------------------------------
 
-![Khu căn hộ cao cấp Sự đẳng cấp trong cuộc sống hiện đại](https://canhosg.vn/wp-content/uploads/2021/03/nhung-can-ho-cao-cap-tren-truc-duong-nguyen-huu-canh-tp-hcm-2.jpg)
+Xem ngay dự án: [KHAI SƠN CITY](https://khaison.city/)
+
+![image](https://github.com/HoangnguyenDev/khu-can-ho-cao-cap/assets/10234503/b6d254a4-19e1-42a8-9f79-4b2243254adc)
+
 
 ### _Xu hướng phát triển khu căn hộ cao cấp tại Việt Nam_
 
@@ -20,7 +23,8 @@ Tại Thành phố Hồ Chí Minh, các khu căn hộ cao cấp như Vinhomes Ce
 _Đầu tư vào khu căn hộ cao cấp: Những lợi ích và rủi ro_
 --------------------------------------------------------
 
-![Khu căn hộ cao cấp Sự đẳng cấp trong cuộc sống hiện đại](https://quan8tphcm.weebly.com/uploads/1/0/4/7/104782125/diamond-lotus-riverside-qu-n-8_orig.jpg)
+![image](https://github.com/HoangnguyenDev/khu-can-ho-cao-cap/assets/10234503/e7452326-c440-460a-a010-893e380a7e25)
+
 
 ### _Lợi ích của đầu tư vào khu căn hộ cao cấp_
 
@@ -89,6 +93,9 @@ Dịch vụ quản lý chuyên nghiệp và an ninh 24/7 đảm bảo cho cư d�
 
 _Các yếu tố ảnh hưởng đến giá trị của một khu căn hộ cao cấp_
 -------------------------------------------------------------
+
+![image](https://github.com/HoangnguyenDev/khu-can-ho-cao-cap/assets/10234503/43c3d87d-3e88-4da2-bdfc-7951ca382d79)
+
 
 ### _Vị trí và phong thủy_
 
